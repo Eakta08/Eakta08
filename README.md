@@ -8,7 +8,7 @@
   - 🔍 Let's uncover hidden patterns and build intelligent systems together.
 
 ### 📫 Let's Connect! 
-  * 💼 Connect with me on [LinkedIn](https://https://www.linkedin.com/in/eakta-prasad) 
+  * 🤝 Connect with me on [LinkedIn](https://https://www.linkedin.com/in/eakta-prasad) 
   * 📧 Drop me an email at: [eaktaprasad08@gmail.com](mailto:eaktaprasad08@gmail.com)
 
 ### Stay Curious, Stay Creative! ✨
